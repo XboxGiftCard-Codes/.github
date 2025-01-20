@@ -2,7 +2,7 @@
 
 Are you an Xbox enthusiast who loves gaming but hates the thought of paying full price for games or subscriptions? Well, you’re in luck! In this article, we will show you how to redeem free Xbox gift card codes and save big on games. Plus, we’ve got a special offer for you that you don’t want to miss. Keep reading to find out how to claim your free Xbox gift card codes and make your gaming experience even more affordable.
 
-### [✅👉CLICK HERE TO GET FREE!](https://freerewards.xyz/amazon/go/)
+### [✅👉CLICK HERE TO GET FREE!](https://freerewards.xyz/xbox/go/)
 
 By accepting the free Xbox gift card offer right now, you'll be able to enjoy significant savings on your next game purchase, Xbox Live Gold subscription, or even on in-game purchases. The process is simple, and in just a few minutes, you'll be well on your way to unlocking amazing discounts. So, if you're ready to elevate your gaming experience without breaking the bank, let’s dive into the details.
 
